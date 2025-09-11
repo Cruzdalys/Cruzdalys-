@@ -4,6 +4,4 @@
 
 ### Olá meu nome é Cruzdalys Cedeno, tenho 17 anos, gosto de aprender muitas coisas novas, também gosto de coelhos, eles são muito fofos.
 
-<img width="245" height="184" alt="image" src="https://github.com/user-attachments/assets/8e26da8f-7da3-4e9b-a44e-db1f7a86e8c9" />
-
-![]([https://github.com/user-attachments/assets/8e26da8f-7da3-4e9b-a44e-db1f7a86e8c9])
+[Coelho](https://img.buzzfeed.com/buzzfeed-static/static/2014-07/29/7/enhanced/webdr04/anigif_enhanced-4159-1406632304-1.gif)
